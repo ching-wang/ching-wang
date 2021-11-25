@@ -1,1 +1,1 @@
-### Hi there 👋 my name is Qing (pronounced “Ching”).
+### Hi there 👋 my name Ching.
