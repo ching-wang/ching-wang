@@ -1,1 +1,1 @@
-### Hi there 👋 my name Ching.
+### Hi there 👋 my name is Ching.
